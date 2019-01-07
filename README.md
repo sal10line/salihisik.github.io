@@ -1,2 +1,0 @@
-# salihisik.github.io
-sitem
